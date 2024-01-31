@@ -1,9 +1,12 @@
-# Who are Motocom?
+# Welcome to Motocom
 
-Motocom Limited is a leading automotive and powersports communications agency based in Buckingham, UK with proven expertise in PR, digital, social, design, events, video and photography. Founded in 2000, we've been setting and redefining the benchmark on 2 and 4-wheels for over 20 years.
+It seems you've stumbled across the home of some of our most amazing projects, most of them are private mind you!
 
-We specialise in bespoke digital solutions for the automotive industry, from media sites and distribution, competitions, apps, fan sites and more.
+Motocom Limited is an automotive and powersports communications agency based in Buckingham, UK. We have an impressive track record in PR, digital media, social engagement, design, events, as well as video and photography. Since our establishment in 2000, we have continuously set and refined the industry standard for both two and four-wheeled innovations, spanning over two decades.
 
-## Interested in our services?
+At Motocom, we specialise in creating bespoke digital solutions exclusively for the automotive industry. Our services range from building media platforms and managing distribution to organising engaging competitions, designing user-friendly apps, and crafting dedicated fan sites.
 
-We'd love to hear how we can help you, just [get in touch on our website](https://motocom.co.uk/contact)!
+
+## Want to learn more about us?
+
+We'd love to discuss how we can be of help to you! Just [get in touch on our website](https://motocom.co.uk/contact)!
